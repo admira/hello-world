@@ -1,3 +1,5 @@
 # hello-world
 My first repository on GitHub
-this is my frist project towards fame :)
+qweqweqwe'wq' is not recognized as an internal or external command,
+'wq' is not recognized as an internal or external command,
+operable program or batch fileqwefsdfsdf aeewqr.
